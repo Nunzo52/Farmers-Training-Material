@@ -1,4 +1,4 @@
-# 📘 Farmers Insurance Study Guide  
+# 📘 Fire 201 Binding Authority 
 *(Smart Plan Home vs. Next-Gen Home, Binding Authority, High-Value Homes)*  
 
 ---
