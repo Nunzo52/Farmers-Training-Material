@@ -1,4 +1,4 @@
-# 🔥 Farmers Insurance Study Guide – Fire 201 (Part 2)
+# 🔥Fire 201 Binding Authority (Part 2)
 
 ---
 
