@@ -1,4 +1,4 @@
-# 📘 Fire 201 Binding Authority 
+# 📘 Fire 201 Binding Authority Part 1
 *(Smart Plan Home vs. Next-Gen Home, Binding Authority, High-Value Homes)*  
 
 ---
